@@ -1,1 +1,0 @@
-# evaebaidewtamu.github.io
